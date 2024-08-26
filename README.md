@@ -1,0 +1,3 @@
+# Taskr
+
+Política de privacidad. 
